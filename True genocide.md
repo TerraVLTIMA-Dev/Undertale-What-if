@@ -1,0 +1,4 @@
+#True Genocide
+You want to destroy the entire world. Really. Not just this timeline. EVERYTHING.
+You don't meet sans in the judgement hall, but earlier.
+The judgement hall is where you meet Frisk. Yes, you've read correctly, Frisk. They've come from another timeline to stop you. If you fail to defeat them thrice, Chara will take over _your_ Frisk, rendering you incapable of any action. You can only watch her defeat the frisk from the other timeline. Suddenly, Asriel appears (apparently from the other timeline, too, because everyone on your timeline is already dead) and you have to fight him. Once you've won, he'll sacrifice himself and destroy the whole timeline. It seems he has induced a True Reset...
